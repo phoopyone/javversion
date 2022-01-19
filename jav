@@ -1,6 +1,5 @@
 [
 {
-id: "48",
 title: "Japanese dad daughter taboo",
 img: "https://moekaungkin.site/apyarmovies/ApImages/v36.jpg",
 link: "https://moekaungkin.site/apyarmovies/ApVideos/v36.mp4"
